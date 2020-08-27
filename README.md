@@ -1,2 +1,2 @@
-![gif from nerdy.dev](https://github.com/argyleink/argyleink/blob/master/argyleink-sm2.gif?raw=true)
+![gif from nerdy.dev](https://github.com/hoaxdream/hoaxdream/blob/master/jeteye.gif?raw=true)
 
